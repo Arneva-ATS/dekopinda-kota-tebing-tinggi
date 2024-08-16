@@ -1,1 +1,1 @@
-# dekopinda-kota-tebing-tinggi
+# dekopinda-karanganyar
